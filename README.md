@@ -1,3 +1,3 @@
-https://imgur.com/a/XfcXd -- Everything you need to see. There's more.
+https://imgur.com/a/B3hBE -- Everything to preview. There's more, of course!
 
-Willing to trade this source, contact me only if you can do something big for me on a technical level. Contact me on Discord: yakismak ッ (#6993).
+You can PM me @ Discord (pumpkinsweet #6693) to discuss details, and if satisfied -- for a trade. Requesting something technically big/advanced (and private!) in return. Please, no lowballing, and straight-forward trade/discussions only, and "professional" rank tier people only. Thanks!
